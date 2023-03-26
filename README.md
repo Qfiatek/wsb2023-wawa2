@@ -1,1 +1,1 @@
-# wsb2023-wawa2
+# Wyzsza Szkola Bankowa
