@@ -1,1 +1,1 @@
-# Wyzsza Szkoła Bankowa
+# Wyższa Szkoła Bankowa
